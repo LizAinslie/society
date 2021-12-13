@@ -1,0 +1,10 @@
+The year is 2037, and I am fucking shrekt in every unit of account known to mankind. I boot up my shrekt desktop because I am fucking skrekt and look at shrekt twitter because I am fucking financially assblasted. Everyone on shrekt twitter is also fucking shrekt because we ignored the Parallels and CryptoPunk maxis. I read the first 5 tweets and realize I should have killed myself long ago before I was so fucking shrekt. I hate bear markets so fucking much, but I also hate bull markets because inevitably get shrekt during them buying stupid ponzi bullshit. I throw my smoothie at the wall because I am fucking dumbass who throw his life away buying all the garbage you retards shill me. FUCK. Now it's time to go to work but I can't get a job because I thought it would be a good idea to punt on blue chips and ESD instead of breeding monsters and earning REAL money, but instead I am fucking unemployable and shrekt beyond belief while smart people hold digital pokemon and laught at me. I am fucking shrekt.\
+
+ok I need PRICE TO GO UP. like VERY SOON. I cant take this anymore. every day I am checking price and it is staying the same. every day, check price, same price. I cant take this anymore, I have over invested, by a lot. it is what it is. but I need the price to GO UP ALREADY. can devs DO SOMETHING?
+
+Not gonna be active in AnubisDAO server tonight. I'm meeting a girl (a real one) in half an hour (wouldn't expect a lot of you to understand anyway) so please don't DM me asking me where I am (im with the girl, ok) you'll most likely get aired because ill be with the girl (again I don't expect you to understand) shes actually really interested in me and its not a situation i can pass up for some meaningless Discord degenerates (because ill be meeting a girl, not that you really are going to understand) this is my life now. Meeting women and not wasting my precious time online, I have to move on from such simple things and branch out (you wouldnt understand)
+
+# Tune in next time for more copypastas.
+
+![image](https://user-images.githubusercontent.com/67360117/145502513-053c7d27-88c3-4cb5-95f5-7e0b073f90d3.png)
+
